@@ -1,1 +1,1 @@
-Thanks to <a href="https://github.com/Albee111" >Albee</a># aby2.github.io
+Thanks to <a href="https://github.com/Albee111" >Albee</a>
